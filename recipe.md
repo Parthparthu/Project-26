@@ -1,3 +1,18 @@
+ingredients for choclate cake :-
+1. chocolate
+2. icing
+3. cream
+4. egg
+5. flour
+6. butter
+7. cocoa solids
+8. sugar
+9. baking powder
+10. powdered sugar
+11. valina extract
+12. unsalted butter
+go to recipe
+
 step 1:  First let's preheat our oven to 350 degrees F. or 176 C. Then let's mix together our dry ingredients with a whisk or a sifter. We want to make sure to break up any cocoa clumps that might be in there.
 
 step 2:  Now let's add our milk, oil, eggs, and vanilla extract. At this point we want to switch to a wooden spoon or a hand mixer to mix the ingredients. The batter will be very thick at this point.
